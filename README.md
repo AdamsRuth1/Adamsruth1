@@ -1,3 +1,3 @@
- Software Engineer. 
-Customer service analyst 
+ Software Engineer/
+Customer service analyst/
 Entrepreneur 
