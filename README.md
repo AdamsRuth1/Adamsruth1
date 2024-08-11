@@ -12,6 +12,7 @@ I am passionate about solving problems, no matter how small they may be. Current
 I'm open to collaboration—let's build something together and make a difference!
 
 Reach me here:
+
 📧 [Gmail](mailto:adamsruth4080@gmail.com)  
 💼 [LinkedIn](https://www.linkedin.com/in/adams-ruth-916543167)  
 🐦 [Twitter](https://x.com/unique1Adams)
